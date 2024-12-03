@@ -1,2 +1,3 @@
-![tumblr_748953281f38d5d425b635d477180e6d_857454e3_540](https://github.com/user-attachments/assets/26d55375-401f-459f-b141-c2c407c02ec8)
+![afsdfsdgsdg](https://github.com/user-attachments/assets/5216d4b9-d527-4e85-ba97-1792b30d57a5)
+zhuzhi lang is just a girl fr
 ![](https://komarev.com/ghpvc/?username=kyusoob&color=red)
