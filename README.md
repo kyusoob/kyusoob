@@ -1,2 +1,2 @@
-puhleaase dont get mad n petty if i hide ur friends -> I hide people when i spam so i dont bother them Stay calm
+cuz u all hate me and dont raed my straw page: im 19 , they/them , i am luo binghe . that is all thank u <3
 ![](https://komarev.com/ghpvc/?username=kyusoob&color=red)
