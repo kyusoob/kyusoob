@@ -1,2 +1,2 @@
-cuz u all hate me and dont raed my straw page: im 19 , they/them , i am luo binghe . that is all thank u <3
+Idk who u random ppl are n what u want from me LOL if you have an issue with me idk what to tell you all I do on ponytown is sit and talk to my friends Stop stalking my strawpage and my other socials ik its the same ppl from the same countries idk what u want I didnt do anything but block people that i dont want to talk to n if ur mad abt that i rlly dont know what to tell u srsly ! i dont make drama yall r the ones bothering Me lol stop believing whatever yalls friends r telling u 
 ![](https://komarev.com/ghpvc/?username=kyusoob&color=red)
